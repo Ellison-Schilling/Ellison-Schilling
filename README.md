@@ -4,7 +4,7 @@
 
 - **Name:** Ellison Largent
 - **Email:** [ellies2021@gmail.com](mailto:ellies2021@gmail.com)
-- **LinkedIn:** [Ellison Largent]([www.linkedin.com/in/ellisonschillinglargent](https://www.linkedin.com/in/ellisonlargent/))
+- **LinkedIn:** [Ellison Largent](https://www.linkedin.com/in/ellisonlargent/)
 
 ---
 
